@@ -1,0 +1,16 @@
+---
+title: Healthy Facts over Fruits and Berries
+featuredImage: /img/fruits.jpg
+---
+
+Hello Again...!!
+
+Fruits are made up of <b>75% </b> of water content and also they contains more vitamins, antioxidants and minerals. It contains two forms of fiber namely soluble and insoluble which plays a big role in making a person healthy. The soluble fiber helps in stabilizing sugar level in the blood and controls the hunger which helps to control the cholestrol and blood pressure. Insoluble fiber add bulk to existing food where one can eat more fruit without adding any calories to our body.
+
+Fruits which have high content of water are low in calories where the water content dilutes the calories and helps in weight-loss. And also it helps to hydrate our body cells and assist in normal functioning of the organs in our body as human body also made up of water content. 
+
+Fresh fruits also helps the people who are fighting with the heart disease, stroke etc. Fruits contains vitamins like <b> beta-carotene, folate, vitamin B6, C and E, and potassium anthocynanins </b>. Beta-carotene helps in treating skin diseases and helps in hair growth. Folate contribute to produce serotonin helps in treating depression. Vitamin C also helps in preventing eye problems. Vitamin E helps in anti aging of skin and protects from sun damage.  
+
+Eating fruits with potassium rich helps to prevent osteoporosis and reduces the blood pressure. Fruits with anthocyanins helps to reduce the memory loss due to age and protect from arthritis. Quercetin helps to decrease the impact of rheumatoid arthritis. Vitamin C is also found in berries which play a major role in radiating the skin, healthy hair and catracts. Best berries are blueberries, blackberries, raspberries, strawberries, boysenberries and cranberries. 
+
+We need to take atleast 2 to 4 servings of fresh fruits. 
